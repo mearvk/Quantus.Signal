@@ -3,7 +3,7 @@
 
 Parent Project: https://github.com/mearvk/Brarner.M.Alete
 
-ScoTus: [US Supreme Court as Gives:](https://www.supremecourt.gov/)
+US SCOTUS: [US Supreme Court](https://www.supremecourt.gov/)
 
 **Project Scope, Thesis, Proposal:**
 
