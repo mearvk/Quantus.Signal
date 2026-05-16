@@ -5,7 +5,7 @@ Parent Project: https://github.com/mearvk/Brarner.M.Alete
 
 ScoTus: [US Supreme Court as Gives:](https://www.supremecourt.gov/)
 
-Project Scope, Thesis, Proposal:
+'''Project Scope, Thesis, Proposal:'''
 
 Thereby Upon studying condition and Cause that we find finds.
 
@@ -37,7 +37,7 @@ Thus neatly one sits with Reasons but as so far as to so far as to Get with Trea
 
 And whose neatly Haircut did the doctorsz sit with to Know upon it if they Ape great goals and sit with Very little in sub-proteins?
 
-Thus Designer:
+'''Thus Designer:'''
 
 Does IQ pertinent?
 
