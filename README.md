@@ -49,4 +49,12 @@ Does the Counts have stress?
 
 Does the Count matter.
 
+**Thus:**
+
+The Pickers Commit and the Commmits Pickers
+
+Thus the art of Be ing and Desig ning
+
+To pick it is a.art fully of commit to history actual.ars.arts.details.as-is.commits.history.rich.and.of.The.pullers.adjacency.of.PUT
+
 
